@@ -1,4 +1,4 @@
-### Hey! you landed on the profile of Sanjeet 😎  
+### Sanjeet 😎  
 ![](https://visitor-badge.laobi.icu/badge?page_id=kumar-sanjeet.profile)
 
 You can find me on:
